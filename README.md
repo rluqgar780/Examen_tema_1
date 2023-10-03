@@ -1,5 +1,5 @@
 ## Presentación
-* :goberserker: Mi nombre es Rafael Luque García,aunque mis amigos me llaman Akita,por cómo me apodo en los videojuegos.Tengo 20 años.
+* 💥: Mi nombre es Rafael Luque García,aunque mis amigos me llaman Akita,por cómo me apodo en los videojuegos.Tengo 20 años.
 * :+1: Soy algo tímido e introvertido,prefiero hacer las cosas solo por mi mismo,aunque suelo "soltarme" rápido,me considero alguien bastante perfeccionista y muy dedicado.
 * :books: También me gusta leer,mi manga favorito es la saga de Berserk.
 * :video_game: Mis videojuegos favoritos son League Of Legends,en el cual compito actualmente,Valorant y Hollow Knight.
