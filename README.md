@@ -5,7 +5,7 @@
 * :books: También me gusta leer,mi manga favorito es la saga de **_Berserk_**.
 * :video_game: También me gustan mucho los videojuegos favoritos son _League Of Legends_ ,en el cual compito actualmente,_Valorant_ y _Hollow Knight_.
   
-* :mortar_board: Cuento con el grado medio de *Sistemas Microinformáticos y Redes* ,en este momento estudio el grado superior de _ASIR_ ,a la vez que trabajo en una empresa llamada Gesthispania en el [Parque joyero en Córdoba](https://gesthispania.com/).
+* :mortar_board: Cuento con el grado medio de *Sistemas Microinformáticos y Redes* ,en este momento estudio el grado superior de _ASIR_ ,a la vez que trabajo en una empresa llamada [Gesthispania](https://gesthispania.com/) en el [Parque joyero en Córdoba](https://www.google.com/maps/place/Gestor%C3%ADas+Asociadas+Gesthispania+S.L./@37.8743803,-4.8184253,15z/data=!4m6!3m5!1s0xd6d20868a926b59:0xd425a7f4c5646d31!8m2!3d37.8743803!4d-4.8184253!16s%2Fg%2F11dyqrbh7h?entry=ttu).
   
 * :notes: En cuanto a música,mis géneros favoritos son el Hip Hop especialmente el rap y el trap,y la música electrónica,especialmente acid tecno,hardcore,hardstyle ,rawstyle y terrorcore.
   
