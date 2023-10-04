@@ -12,5 +12,5 @@
 * :notes: En cuanto a música,mis géneros favoritos son el Hip Hop especialmente el rap y el trap,y la música electrónica,especialmente acid tecno,hardcore,hardstyle ,rawstyle y terrorcore.
   
 * :dog: Otro dato de mi es que me encantan los animales,he tenido desde pequeño erizos,muchísimas aves y perros.
-  ![Esta es una imagen de un erizo][https://es.wikipedia.org/wiki/Archivo:Igel01.jpg]
+  ![Esta es una imagen de un erizo](https://upload.wikimedia.org/wikipedia/commons/d/d4/Igel01.jpg)
 * :cyclone: En un futuro,como plan A,mi objetivo es montar una franquicia de academias de informática con mi mejor amigo,como plan B,me gustaría ser profesor de instituto de informática o de ciclo de grado medio o superior y como plan C no me importaría trabajar de administrador de sistemas en una empresa.
